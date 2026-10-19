@@ -33,4 +33,4 @@ Praxia connects data, processes, AI models, agents and tools into one operating 
 
 ### Contact
 
-[praxia-atelier.net](https://praxia-atelier.net)
+[WhatsApp](https://wa.me/34650017962?text=Hola%2C%20vengo%20de%20GitHub) · [praxia.atelier@gmail.com](mailto:praxia.atelier@gmail.com) · [praxia-atelier.net](https://praxia-atelier.net)
